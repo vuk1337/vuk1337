@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vuk1337
+- 👀 I’m interested in crypto
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on random programs
+- 📫 How to reach me steam (https://steamcommunity.com/id/0ou)
